@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and emerging technologies 
 - 🌱 I’m currently learning Software Development at Power Learn Project
 - 💞️ I’m looking to collaborate on projects that will enhance my skills
-- 📫 How to reach me: buhlesibanda122@gmail.com 
+- 📫 How to reach me: 402103393@my.richfield.ac.za 
 - 😄 Pronouns: she/ he/ they/ them
 - ⚡ Fun fact: I fell in love with coding at a young age 😍 
 
